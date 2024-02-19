@@ -1,4 +1,4 @@
-# How to view assignment WK2-1
+# How to view assignment WK3-1
 
 ## pdfs
 
